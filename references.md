@@ -1,1 +1,1 @@
-## GitHub Teachers
+## GitHub Teacherss
